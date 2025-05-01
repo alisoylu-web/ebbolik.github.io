@@ -1,1 +1,0 @@
-# ebbolik.github.io
